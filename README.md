@@ -8,6 +8,7 @@ Lehigh University, College of Business, Bethlehem, PA					Graduation May 2023
 __ High School,___ , __					 	 		                          Graduated June 2019
 Finished with Highest Honors. 						    		              GPA: 3.99 weighted
 
+
 WORK EXPERIENCE
 Caddie, __ Country Club, __, __ . 			     			     May 2016 - Present
 •	Carried golf bags for players, cleaned clubs, greeted country club members, and provided customer service.
